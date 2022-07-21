@@ -11,7 +11,7 @@ Before engaging in a more active conversation I usually request this information
 5.  What is the location of the office? (if there is an office)
 6.  What is the salary range for this position? (we can be more precise later. bonus points if you give me the gross annual value)
 7.  What is the vacation policy?
-8.  If the amount of vacation days is lower than 30, is there the possibility to take extra (non-paid) days off?
+8.  What is your work/life balance? Do you have flexible hours?
 9.  Are there any extra benefits I should be aware of?
 10. How would you classify the current moral state of the team?
 11. What will the recruitment process be like?
