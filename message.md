@@ -1,6 +1,6 @@
 Hi! Thanks for your interest in my profile!
 
-First of all, I have to apologize for replying to your message with a standard one, but I think it is better to give you feedback like this than give you no feedback at all.
+First of all, to start thank you for the interest shown.
 
 Before engaging in a more active conversation I usually request this information:
 
